@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Adriana
-- 👀 I’m interested in coding, designing and other fun activities.
+- 👀 I’m interested in designing, prototyping, and doing what makes me happy.
 - 🌱 I’m a UX Designer
 - 💞️ I’m looking to collaborate on UX design projects
 - 📫 I can be reached at my email@ adrianaroyster@gmail.com
